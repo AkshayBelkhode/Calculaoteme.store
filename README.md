@@ -1,2 +1,0 @@
-# Calculaoteme.store
- 
